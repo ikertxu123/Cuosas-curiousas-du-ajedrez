@@ -8,3 +8,4 @@ Arnoldas Kulboka hizo pretemporada con los hornets
 En la Euroliga Lukita Doncic maquinaba. 
 El BB y yo tenemos las mismos euroligas
 
+Esto es tryhardear de locos
